@@ -9,8 +9,8 @@
 
 ## 👥 Team Members
 
-* Geethika – Section 5
-* Mohitha – Section 5
+* Geethika – Section 6
+* Mohitha – Section 6
 
 ---
 
